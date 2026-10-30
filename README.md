@@ -3,7 +3,7 @@
 this will be a book of thoughts to hopefully fix the world
 using Quranic values.
 
-most will scoff after that second line but wait and see...
+most will scoff after reading that line but wait and see...
 
 firstly: 
 
