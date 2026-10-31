@@ -3,6 +3,12 @@
 this will be a book of thoughts to hopefully fix the world
 using Quranic values.
 
+its called "opinions" because they are my flawed human opinions.
+
+so dont take it as gospel and dont get mad or violent for whatever i say. 
+
+reach out to me, correct me, advise me, intellectually.
+
 most will scoff after reading that line but wait and see...
 
 firstly: 
