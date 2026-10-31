@@ -24,7 +24,11 @@ or
 Quran verse:
 
 [112:1]
+
 قُلْ هُوَ اللَّهُ أَحَد
+
+"أَحَد"
+
 "Say, He is God, One."
 
 
@@ -40,5 +44,7 @@ sound familiar?
 
 
 Wake up, Neo...
+
 The Matrix has you
+
 Follow the white rabbit
