@@ -38,7 +38,7 @@ Autism / التوحد
 
 Can be translated as: 
 
-The One
+"The One"
 
 sound familiar?
 
